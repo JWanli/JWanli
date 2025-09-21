@@ -10,6 +10,5 @@
 - 💬 Feel free to ask me about anything related to combat sports/HEMA - always happy to chat!
 
 ### Connect with Me
-- 📫 How to reach me: [Your email or social media links]
-- 😄 Pronouns: [Your pronouns]
+- 📫 How to reach me: [虚静观复](https://space.bilibili.com/444356468)
 - ⚡ Fun fact: I can discuss robotic arm trajectories during the day and practice longsword techniques at night!
